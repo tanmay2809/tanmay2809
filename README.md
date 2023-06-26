@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **tanmay2809@outlook.com**
 
-- ⚡ Fun fact **Funny**
+- ⚡ Fun fact **I introvert**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
